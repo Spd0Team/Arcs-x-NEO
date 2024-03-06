@@ -1,7 +1,7 @@
 
 ## <summary>🚀 arcs EX NEO: The Premier Roblox Exploit 🚀</summary>
 
-Welcome to **Arceus X NEO** – the pinnacle of Roblox exploiting. Designed with cutting-edge technology, our exploit not only stands out in the crowd but also sets a benchmark for what a Roblox exploit can achieve.
+Welcome to **Arcs EX NEO** – the pinnacle of Roblox exploiting. Designed with cutting-edge technology, our exploit not only stands out in the crowd but also sets a benchmark for what a Roblox exploit can achieve.
 
 
 ## 🌟 Features
